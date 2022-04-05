@@ -7,7 +7,7 @@
 
 * ## *About me* ##
 
-  _I am 23 years old. before work such as laborer._
+  _I am 23 years old. Before work such as laborer._
 
 * ## *Education* ##
 
